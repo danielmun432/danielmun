@@ -1,4 +1,4 @@
-## Hello and Welcome!
+## Hello and Welcome!👋🖥️
 
 I'm Daniel, an IT student based in Sydney.
 
